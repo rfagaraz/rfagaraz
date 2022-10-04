@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **rfagaraz@gmail.com**
 
-- 📄 Know about my experiences [www.linkedin.com/in/rfagaraz](www.linkedin.com/in/rfagaraz)
+- 📄 Know about my experiences www.linkedin.com/in/rfagaraz
 
 - ⚡ Fun fact I've invested 2.700 hours in Path of Exile and still don't know how to play
 
