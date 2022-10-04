@@ -9,7 +9,7 @@
 
 - 📄 Know about my experiences [www.linkedin.com/in/rfagaraz](www.linkedin.com/in/rfagaraz)
 
-- ⚡ Fun fact **I've invested 2.700 hours in Path of Exile and still don't know how to play**
+- ⚡ Fun fact I've invested 2.700 hours in Path of Exile and still don't know how to play
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
